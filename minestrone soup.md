@@ -12,7 +12,7 @@ Minestore soup
 7. 1 can of crushed tomatoes
 8. 1 can of chickpeas
 9. 1 cup of vegetable broth
-10. 1 cup of any paste
+10. 1 cup of any pasta
 11. 10g olive oil
 
 # Steps 
